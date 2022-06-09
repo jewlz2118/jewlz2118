@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on a number of projects small or big
 - 📫 How to reach me 
 - jay_hodge@hotmail.co.uk
-- linkedin.com/in/julian-hodge-aaa803142
+- linkedin.com/in/julian-hodge2118
 
 <!---
 jewlz2118/jewlz2118 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
